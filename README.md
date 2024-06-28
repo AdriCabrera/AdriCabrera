@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **adricanita_c@hotmail.com**
 
-- ⚡ Fun fact **I'm a dancer 🩰**
+- ⚡ Fun fact **I'm a dancer 🩰 in love with coffee ☕**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
